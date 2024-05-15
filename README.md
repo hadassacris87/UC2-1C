@@ -13,7 +13,7 @@
 
  # Atividade 1: Trello 
 
- #𝙃𝙖𝙙𝙖𝙨𝙨𝙖🍒
+ 𝙃𝙖𝙙𝙖𝙨𝙨𝙖🍒
  
  - [metas] [𝐭𝐫𝐞𝐥𝐥𝐨](https://trello.com/invite/b/Jq1kFGIG/ATTI21cd3f2b918a813ace7b8ad7ce497c03347E734D/hadassa🍒)
    
