@@ -12,10 +12,10 @@
  ## Hadassa Cristiane 
 
  # Atividade 1: Trello 
- - [metas] [trello](https://trello.com/invite/b/Jq1kFGIG/ATTI21cd3f2b918a813ace7b8ad7ce497c03347E734D/hadassa🍒)
+ - [metas] [𝐭𝐫𝐞𝐥𝐥𝐨](https://trello.com/invite/b/Jq1kFGIG/ATTI21cd3f2b918a813ace7b8ad7ce497c03347E734D/hadassa🍒)
    
-- [ grupo] [trello](https://trello.com/invite/b/FNEcOPRI/ATTIc6fe002b1ffac2d9544b097f4de5ef8d7E9E6D77/trabalho-em-grupo)
+- [ grupo] [𝐭𝐫𝐞𝐥𝐥𝐨](https://trello.com/invite/b/FNEcOPRI/ATTIc6fe002b1ffac2d9544b097f4de5ef8d7E9E6D77/trabalho-em-grupo)
   
- -  [grupo] [aquecimento global](https://www.canva.com/design/DAGEjcwsWQw/oLc2Cb0vagBMyZSGDPg4ug/edit?utm_content=DAGEjcwsWQw&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
+ -  [grupo] [𝐉𝐚𝐯𝐚𝐒𝐜𝐫𝐢𝐩𝐭l](https://www.canva.com/design/DAGEjcwsWQw/oLc2Cb0vagBMyZSGDPg4ug/edit?utm_content=DAGEjcwsWQw&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
    
--  [grupo] [aquecimento global: hadassa, luana, nicole, breno](https://www.canva.com/design/DAGC38ucRMQ/fH-9GaF5vZwT2X9-wlIXVw/edit?utm_content=DAGC38ucRMQ&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)  
+-  [grupo] [𝐀𝐪𝐮𝐞𝐜𝐢𝐦𝐞𝐧𝐭𝐨 𝐠𝐥𝐨𝐛𝐚𝐥](https://www.canva.com/design/DAGC38ucRMQ/fH-9GaF5vZwT2X9-wlIXVw/edit?utm_content=DAGC38ucRMQ&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)  
