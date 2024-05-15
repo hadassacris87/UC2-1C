@@ -12,6 +12,9 @@
  ## Hadassa Cristiane 
 
  # Atividade 1: Trello 
+
+ #𝙃𝙖𝙙𝙖𝙨𝙨𝙖🍒
+ 
  - [metas] [𝐭𝐫𝐞𝐥𝐥𝐨](https://trello.com/invite/b/Jq1kFGIG/ATTI21cd3f2b918a813ace7b8ad7ce497c03347E734D/hadassa🍒)
    
 - [ grupo] [𝐭𝐫𝐞𝐥𝐥𝐨](https://trello.com/invite/b/FNEcOPRI/ATTIc6fe002b1ffac2d9544b097f4de5ef8d7E9E6D77/trabalho-em-grupo)
