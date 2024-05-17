@@ -21,4 +21,6 @@
   
  -  [grupo] [𝐉𝐚𝐯𝐚𝐒𝐜𝐫𝐢𝐩𝐭l](https://www.canva.com/design/DAGEjcwsWQw/oLc2Cb0vagBMyZSGDPg4ug/edit?utm_content=DAGEjcwsWQw&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
    
--  [grupo] [𝐀𝐪𝐮𝐞𝐜𝐢𝐦𝐞𝐧𝐭𝐨 𝐠𝐥𝐨𝐛𝐚𝐥](https://www.canva.com/design/DAGC38ucRMQ/fH-9GaF5vZwT2X9-wlIXVw/edit?utm_content=DAGC38ucRMQ&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)  
+-  [grupo] [𝐀𝐪𝐮𝐞𝐜𝐢𝐦𝐞𝐧𝐭𝐨 𝐠𝐥𝐨𝐛𝐚𝐥](https://www.canva.com/design/DAGC38ucRMQ/fH-9GaF5vZwT2X9-wlIXVw/edit?utm_content=DAGC38ucRMQ&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
+
+-  [Business Model Canvas] [Canva](https://www.canva.com/design/DAGFhf4CXAs/_Gr85784rGYMWp81mzck1A/edit?utm_content=DAGFhf4CXAs&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
