@@ -24,3 +24,5 @@
 -  [grupo] [𝐀𝐪𝐮𝐞𝐜𝐢𝐦𝐞𝐧𝐭𝐨 𝐠𝐥𝐨𝐛𝐚𝐥](https://www.canva.com/design/DAGC38ucRMQ/fH-9GaF5vZwT2X9-wlIXVw/edit?utm_content=DAGC38ucRMQ&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
 
 -  [Business Model Canvas] [𝐂𝐚𝐧𝐯𝐚](https://www.canva.com/design/DAGFhf4CXAs/_Gr85784rGYMWp81mzck1A/edit?utm_content=DAGFhf4CXAs&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
+
+- [emprego dos sonhos][𝐓𝐫𝐚𝐛𝐚𝐥𝐡𝐨 𝐝𝐨𝐬 𝐬𝐨𝐧𝐡𝐨𝐬](https://docs.google.com/document/d/11T-wNwE-hT5tZ0EzhZpsVGa0i695r6mBZl_3ilRI8uI/edit)
