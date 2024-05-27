@@ -11,7 +11,7 @@
 - insira os links dos trabalhos e atividades que você desenvolveu e participou durante esta UC.
  ## Hadassa Cristiane 
 
- # Atividade 1: Trello 
+ # Atividades: 
 
  𝙃𝙖𝙙𝙖𝙨𝙨𝙖🍒
  
