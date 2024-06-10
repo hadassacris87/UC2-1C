@@ -28,3 +28,4 @@
 - [emprego dos sonhos] [𝐓𝐫𝐚𝐛𝐚𝐥𝐡𝐨 𝐝𝐨𝐬 𝐬𝐨𝐧𝐡𝐨𝐬](https://docs.google.com/document/d/11T-wNwE-hT5tZ0EzhZpsVGa0i695r6mBZl_3ilRI8uI/edit?usp=sharing)
 
 - [Gráfico de Gantt] [𝐄𝐱𝐜𝐞𝐥](https://docs.google.com/spreadsheets/d/1hIoXhZhvbg1Z9iN4imC121HL2_e8qhqLFpRqoYLBWaY/edit?usp=sharing)
+- [o babado la ] [Fornecedores](https://www.canva.com/design/DAGHdyL3Tv8/_WtkENhnft46W_Che7inVA/edit)
